@@ -1,0 +1,4 @@
+- 👋 hola, eu sou @isaiasribeiro1991
+- 👀 estou interessado em aprender computaçao 
+- 🌱 eu estou aprendendo no momento computaçao 
+- 💞️ procuro colaborar com o aplicativo
